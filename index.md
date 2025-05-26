@@ -15,7 +15,7 @@ From product reviews and smart home hacks to STEM toy finds and weekend projects
 
 ---
 
-## 🔹 Top Picks!
+## 🔹 Top Picks
 
 **🛠️ Tech That Works. Life-Tested.**
 
